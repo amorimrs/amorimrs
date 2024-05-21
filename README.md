@@ -13,3 +13,6 @@ utilizo esse espaco para minha organizacao e compartilhamento dos meus projetos 
 @amorim_jn
 
 ![](https://media.tenor.com/69vUjcI6DcYAAAAM/tiger-dance-tiger.gif)
+
+
+![](https://media1.tenor.com/m/I3wsEZ0P7lYAAAAC/little-black-girl-eyes-wide-eyes-wide.gif).
